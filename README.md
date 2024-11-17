@@ -1,3 +1,4 @@
+! [](https://pix.crd.co/assets/images/gallery18/3890bbcf_original.gif?v=95dd3781) 
 𖥔hi there... here's my introduction if you want to ^^
 𝄞░░░░▒▒▒▒▓▓▓ name! . Renzi/Ori or any nickname name!░▒▒▒▓▓
 byi. /𓅂 ➤ . I either had myself being a weird person due my freaky personality! you can whisp me to I stop it! 🐦
