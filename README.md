@@ -6,7 +6,11 @@
 𝄞░░░░▒▒▒▒▓▓▓ name! . Renzi/Ori or any nickname name!░▒▒▒▓▓
 
 
-byi. /𓅂 ➤ . I either had myself being a weird person due my freaky personality! you can whisp me to I stop it! 🐦
+>> byi. /𓅂 ➤ . I either had myself being a weird person due my freaky personality! you can whisp me to I stop it!. also when I am comfortable enough I will c+h you ^^
+
+
+
+
 
 
 
@@ -28,6 +32,14 @@ byi. /𓅂 ➤ . I either had myself being a weird person due my freaky personal
 
 
 
+
+
+
+. 
+ . 
+. 
+. 
+.  
 
 
 
