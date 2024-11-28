@@ -80,20 +80,19 @@ XE/XEM ..
 
 ｠۶⚠ ***DNI LIST!*** 🥀｟
 .!!! **ONE**.//"DONT EVER CAUSE A RAGEBAIT THAT'S TARGET ABOUT ME, I NOT HAPPY ENOUGH TO ***FIGHT*** YOUR ASS."//.
-     
-     ***TWO*** . // "DON'T ***EVER*** MOCK MY FRIENDS. I will find you. /unless jk"
 
-     **THREE** . // TAKING INSPIRED WITHOUT ASKING. 
+ ***TWO*** . // "DON'T ***EVER*** MOCK MY FRIENDS. I will find you. /unless jk"
 
-     🌹. 〘"That's the least~!, I guess some extra?!"〗. ۶ 
+**THREE** . // TAKING INSPIRED WITHOUT ASKING. 
 
-     BSFS HII.  ➺
+🌹. 〘"That's the least~!, I guess some extra?!"〗. ۶ 
+
+BSFS HII.  ➺
 
 @fancyi1/ Fancyi, C/Jewls, @meowingdogs / Fishie, Oreo(?), Poison
+  MY ADOPTED KID!!!  ➡︎
 
-    MY ADOPTED KID!!!  ➡︎
-
-    KYO/MAYO.
+  KYO/MAYO.
 
 
 [ ![pink-spray-roses-online-globalrose](https://github.com/user-attachments/assets/f68f0cee-9314-4e65-bb4d-0052e3223814) ]
