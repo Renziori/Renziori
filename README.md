@@ -89,8 +89,7 @@ XE/XEM ..
 
 BSFS HII.  ➺
 
-@fancy1i/ Fancyi, C/Jewls, @meowingdogs / Fishie, Oreo(?), @p0iS0n1vXyyPoison
-
+@fancy1i/ Fancyi, C/Jewls, @meowingdogs / Fishie, Oreo(?), @p0is0n1vyxx / Poison
   MY ADOPTED KID!!!  ➡︎
 
   KYO/MAYO.
