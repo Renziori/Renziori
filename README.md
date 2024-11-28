@@ -1,3 +1,4 @@
+![Không Có Tiêu Đề175_20241128120226](https://github.com/user-attachments/assets/81ca4686-1208-4ead-b51e-6e2d54812266)
 「」. 【i **LOVE** you yet. ~~you don't felt the same~~】
 ━━━━━━━━━━━━━━
 ━━━━━━━━━━━━━━
@@ -17,43 +18,43 @@ Zetaa . Renzi . Ori . _[etc]_
 
  【. SHE / HER ..
 
- ┄┄┄┄┄┄┄┄┄┄┄┄┄
+ ┄┄┄┄┄┄┄┄┄┄┄┄┄🥀
  
  **for everyone**
 
- ━━━━━━━━━━━━━
+ ━━━━━━━━━━━━━🌹
  
  
  . THEY / THEM ..
 
- ┄┄┄┄┄┄┄┄┄┄┄┄┄
+ ┄┄┄┄┄┄┄┄┄┄┄┄┄🥀
  
  _if you don't know me_ .
 
- ━━━━━━━━━━━━━
+ ━━━━━━━━━━━━━🌹
  
 XE/XEM ..
 
-┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄
+┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄🥀
  
  ~~mostly not using~~
 
- ━━━━━━━━━━━━━━━
+ ━━━━━━━━━━━━━━━🌹
  
  .. HE/HIM
 
- ┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄
+ ┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄🥀
  
  ~~close enough to use~~
 
- ━━━━━━━━━━━━━━━━
+ ━━━━━━━━━━━━━━━━🌹
 
  OTHER... 
 
- ───┄┄┄┄┄┄┄┄┄┄┄────
+ ───┄┄┄┄┄┄┄┄┄┄┄────🥀
 
 
- *okay*
+ *okay* 】
 
 【━━ ━━━  ━━━ ━||🪡🌹 . 】
 
@@ -73,7 +74,26 @@ XE/XEM ..
 >> 
 >> . WHEN YOU'RE INTERACT WITH ME A WHILE WITH OTHERS ALSO IF I WENT QUIET AND JUST TYPE SOME LIKE ".. ? " & "oh" OR JUST MOVE AWAY. THAT MAY MEAN I HAD GOTTEN UPSET.
 >>
->>Also if I doesn't answer you  though I wasn't offtab  this may mean I had been uncomf with you  please stay away from me if I do that or either I just didn't know. 
+>>Also if I doesn't answer you  though I wasn't offtab  this may mean I had been uncomf with you  please stay away from me if I do that or either I just didn't know.
+
+. 【."ah. I guess this is the **en-.**】
+
+｠۶⚠ ***DNI LIST!*** 🥀｟
+.!!! **ONE**.//"DONT EVER CAUSE A RAGEBAIT THAT'S TARGET ABOUT ME, I NOT HAPPY ENOUGH TO ***FIGHT*** YOUR ASS."//.
+     
+     ***TWO*** . // "DON'T ***EVER*** MOCK MY FRIENDS. I will find you. /unless jk"
+
+     **THREE** . // TAKING INSPIRED WITHOUT ASKING. 
+
+     🌹. 〘"That's the least~!, I guess some extra?!"〗. ۶ 
+
+     BSFS HII.  ➺
+
+@fancyi1/ Fancyi, C/Jewls, @meowingdogs / Fishie, Oreo(?), Poison
+
+    MY ADOPTED KID!!!  ➡︎
+
+    KYO/MAYO.
 
 
 [ ![pink-spray-roses-online-globalrose](https://github.com/user-attachments/assets/f68f0cee-9314-4e65-bb4d-0052e3223814) ]
