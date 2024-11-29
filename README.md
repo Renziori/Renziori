@@ -90,9 +90,19 @@ XE/XEM ..
 BSFS HII.  ➺
 
 @fancy1i/ Fancyi, C/Jewls, @meowingdogs / Fishie, Oreo(?), @p0is0n1vyxx / Poison
+
   MY ADOPTED KID!!!  ➡︎
 
   KYO/MAYO.
+〕
+
+〕
+
+〕
+
+
+〕
+  〘【."you never like me ***after all**." 】〗
 
 
 [ ![pink-spray-roses-online-globalrose](https://github.com/user-attachments/assets/f68f0cee-9314-4e65-bb4d-0052e3223814) ]
