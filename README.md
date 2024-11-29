@@ -98,6 +98,8 @@ BSFS HII.  ➺
 
 〕
 
+***EXTREMELY MOOD SWINGS. / pretty got easily get left out or sad.***
+
 〕
 
 
