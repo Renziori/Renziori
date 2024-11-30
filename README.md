@@ -104,7 +104,10 @@ BSFS HII.  ➺
 
 
 〕
-  〘【."you never like me ***after all**." 】〗
+  〘【."you never actually care about me ***after all**." 】〗
+  
+↑
 
+~~`irl feeling`~~
 
 [ ![pink-spray-roses-online-globalrose](https://github.com/user-attachments/assets/f68f0cee-9314-4e65-bb4d-0052e3223814) ]
