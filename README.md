@@ -104,7 +104,7 @@ BSFS HII.  ➺
 
 
 〕
-  〘【."you never actually care about me ***after all**." 】〗
+  〘【."you never actually care about me ***after all**, ***`I HATE YOU`***." 】〗
   
 ↑
 
