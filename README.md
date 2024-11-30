@@ -98,7 +98,7 @@ BSFS HII.  ➺
 @fancy1i/ Fancyi(?) 
 〕
 
-***EXTREMELY MOOD SWINGS. / pretty got easily get left out or sad.***
+***EXTREMELY MOOD SWINGS. / pretty got easily get left out or sad. ,, crying iwec***
 
 〕
 
