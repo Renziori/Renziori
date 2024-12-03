@@ -18,40 +18,40 @@ Zetaa . Renzi . Ori . _[etc]_
 
  【. SHE / HER ..
 
- ┄┄┄┄┄┄┄┄┄┄┄┄┄🥀
+ ┄┄┄┄┄┄┄┄┄┄┄┄┄🥀💉
  
  **for everyone**
 
- ━━━━━━━━━━━━━🌹
+ ━━━━━━━━━━━━━🌹🩸
  
  
  . THEY / THEM ..
 
- ┄┄┄┄┄┄┄┄┄┄┄┄┄🥀
+ ┄┄┄┄┄┄┄┄┄┄┄┄┄🥀🩸
  
  _if you don't know me_ .
 
- ━━━━━━━━━━━━━🌹
+ ━━━━━━━━━━━━━🌹🩸
  
 XE/XEM ..
 
-┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄🥀
+┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄🥀🌡
  
  ~~mostly not using~~
 
- ━━━━━━━━━━━━━━━🌹
+ ━━━━━━━━━━━━━━━🌹🌡
  
  .. HE/HIM
 
- ┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄🥀
+ ┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄🥀🌡
  
  ~~close enough to use~~
 
- ━━━━━━━━━━━━━━━━🌹
+ ━━━━━━━━━━━━━━━━🌹🌡
 
  OTHER... 
 
- ───┄┄┄┄┄┄┄┄┄┄┄────🥀
+ ───┄┄┄┄┄┄┄┄┄┄┄────🥀🌡
 
 
  *okay* 】
@@ -63,18 +63,18 @@ XE/XEM ..
 
 >> I AM A VERY AWKWARD PERSON.! PLS BE BARE WITH MY WEIRD BEHAVIOR! [freaky]
 >>
->> please DO NOT MAKE JOKE ABOUT MY IRL LOOKS UNLESS YOU'RE A FRIEND THAT I AM COMF ENOUGH.
+>> please DO NOT MAKE JOKE ABOUT MY IRL LOOKS UNLESS YOU'RE A FRIEND THAT I AM COMF ENOUGH.🩸
 >> 
->> I CAN'T DEAL WITH ~~RACIST~~ JOKES UNLESS YOU'RE MY FRIEND! .
+>> I CAN'T DEAL WITH ~~RACIST~~ JOKES UNLESS YOU'RE MY FRIEND!, 💉.
 >> 
 「random behavior you should know 」
 
 
 >>
 >> 
->> . WHEN YOU'RE INTERACT WITH ME A WHILE WITH OTHERS ALSO IF I WENT QUIET AND JUST TYPE SOME LIKE ".. ? " & "oh" OR JUST MOVE AWAY. THAT MAY MEAN I HAD GOTTEN UPSET.
+>> . WHEN YOU'RE INTERACT WITH ME A WHILE WITH OTHERS ALSO IF I WENT QUIET AND JUST TYPE SOME LIKE ".. ? " & "oh" OR JUST MOVE AWAY. THAT MAY MEAN I HAD GOTTEN UPSET.🩸
 >>
->>Also if I doesn't answer you  though I wasn't offtab  this may mean I had been uncomf with you  please stay away from me if I do that or either I just didn't know.
+>>Also if I doesn't answer you  though I wasn't offtab  this may mean I had been uncomf with you  please stay away from me if I do that or either I just didn't know.💊
 
 . 【."ah hey! . I guess this is the **end-.**】
 
@@ -97,9 +97,9 @@ BSFS HII.  ➺
 〕
 @fancy1i/ Fancyi(?) 
 〕
-
+⚰️
 .  "if you meet me in pt and I had C+H comf! felt free to c+h with me^^ I don't mind interacting but please if you're starting a serious conversation with me! I may be awkward.  !!!"
-
+🎚
 〕
 
 
