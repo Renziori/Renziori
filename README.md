@@ -79,11 +79,11 @@ XE/XEM ..
 . 【."ah hey! . I guess this is the **end-.**】
 
 ｠۶⚠ ***DNI LIST!*** 🥀｟
-.!!! **ONE**.//"DONT EVER CAUSE A RAGEBAIT THAT'S TARGET ABOUT ME, I NOT HAPPY ENOUGH TO ***FIGHT*** YOUR ASS."//.
+.!!! **ONE**. ragebaiter.//"DONT EVER CAUSE A RAGEBAIT THAT'S TARGET ABOUT ME, I NOT HAPPY ENOUGH TO ***FIGHT*** YOUR ASS."//.
 
- ***TWO*** . // "DON'T ***EVER*** MOCK MY FRIENDS. I will find you. /unless jk"
+ ***TWO*** .people mockers. // "DON'T ***EVER*** MOCK MY FRIENDS. I will find you. /unless jk"
 
-**THREE** . // TAKING INSPIRED WITHOUT ASKING. 
+**THREE** . taking inspo without asking..// TAKING INSPIRED WITHOUT ASKING. 
 
 🌹. 〘"That's the least~!, I guess some extra?!"〗. ۶ 
 
@@ -104,10 +104,10 @@ BSFS HII.  ➺
 
 
 〕
-  "ah! this is actually the end now! you may came back your own home now!. . right?"
+  "ah! this is actually the end now! you may came back your own home now!. . **right?**"
   
 ↑
 
-~~`irl feeling`~~
+-Opposite.(main oc of my GitHub theme.) 
 
 [ ![pink-spray-roses-online-globalrose](https://github.com/user-attachments/assets/f68f0cee-9314-4e65-bb4d-0052e3223814) ]
