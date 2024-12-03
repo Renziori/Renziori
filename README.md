@@ -76,7 +76,7 @@ XE/XEM ..
 >>
 >>Also if I doesn't answer you  though I wasn't offtab  this may mean I had been uncomf with you  please stay away from me if I do that or either I just didn't know.
 
-. 【."ah. I guess this is the **en-.**】
+. 【."ah hey! . I guess this is the **end-.**】
 
 ｠۶⚠ ***DNI LIST!*** 🥀｟
 .!!! **ONE**.//"DONT EVER CAUSE A RAGEBAIT THAT'S TARGET ABOUT ME, I NOT HAPPY ENOUGH TO ***FIGHT*** YOUR ASS."//.
@@ -98,13 +98,13 @@ BSFS HII.  ➺
 @fancy1i/ Fancyi(?) 
 〕
 
-***EXTREMELY MOOD SWINGS. / pretty got easily get left out or sad. ,, crying iwec***
+.  "if you meet me in pt and I had C+H comf! felt free to c+h with me^^ I don't mind interacting but please if you're starting a serious conversation with me! I may be awkward.  !!!"
 
 〕
 
 
 〕
-  〘【."you never actually care about me ***after all**, ***`I HATE YOU`***." 】〗
+  "ah! this is actually the end now! you may came back your own home now!. . right?"
   
 ↑
 
